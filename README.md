@@ -14,4 +14,4 @@ About Me:
 • 📫 Feel free to reach out if you want to chat about anything tech-related!
 
 
-![programming guy](https://github.com/user-attachments/assets/9736aa96-c950-4d96-a60c-5d37519a6709)
+![programming guy](https://github.com/user-attachments/assets/2e62ad92-2845-4aa7-ab55-881f68eda1f3)
